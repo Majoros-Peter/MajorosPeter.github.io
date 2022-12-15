@@ -1,2 +1,0 @@
-# MajorosPeter.github.io
-Próba
